@@ -1,4 +1,3 @@
-Egi XD:
 #Compiled By LuciverXD
 #https://github.com/LuciverXD
 #Recode mulu yah,jangan recode trus,malu sama umur
